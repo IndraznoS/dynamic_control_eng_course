@@ -1,1 +1,1 @@
-saya akan belajar figure dengan fitur github
+saya akan belajar figure dengan fitur GitHub.
