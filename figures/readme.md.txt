@@ -1,0 +1,1 @@
+saya akan belajar figure dengan fitur github
