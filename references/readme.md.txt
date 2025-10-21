@@ -1,0 +1,1 @@
+saya berkomitmen untuk belajar dan menyelesaikan pembuatan buku text
